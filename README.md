@@ -1,2 +1,2 @@
 # Othello_game
-hemaaaaaaaaaaaaa ua ged3an
+hemaaaaaaaaaaaaa ya ged3an
